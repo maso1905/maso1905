@@ -6,3 +6,9 @@
 - ⚡ Seinfeld junky
 - ⚡ I play guitar and piano
 - ⚡ Wes Anderson fan
+
+### Contact me!
+
+- [maso1905@student.miun.se](maso1905@student.miun.se)
+- [mallasoderlund@hotmail.com](mallasoderlund@hotmail.com)
+- [LinkedIn](https://www.linkedin.com/in/malin-söderlund-2ab9b215a)
