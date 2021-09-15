@@ -1,7 +1,5 @@
 # Helloooooooooooooooo 👋
 
-## My name is Malin and I'm a  Web Development graduate.
-
 - ⚡ 29 Years old
 - ⚡ Seinfeld junky
 - ⚡ I play guitar and piano
