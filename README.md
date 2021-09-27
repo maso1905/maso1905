@@ -4,7 +4,6 @@
 - ⚡ Seinfeld junky
 - ⚡ I play guitar and piano
 - ⚡ Wes Anderson fan
-- ⚡ Currently learning Unity
 
 ### Contact me!
 
