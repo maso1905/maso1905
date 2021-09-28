@@ -2,7 +2,7 @@
 
 - ⚡ 29 Years old
 - ⚡ Seinfeld junky
-- ⚡ I play guitar and piano
+- ⚡ Currently learning Unity
 - ⚡ Wes Anderson fan
 
 ### Contact me!
