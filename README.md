@@ -1,8 +1,7 @@
 # Helloooooooooooo👋
 
-- ⚡ 29 Years old
+- ⚡ 30 Years old
 - ⚡ Seinfeld junky
-- ⚡ Currently learning Unity
 - ⚡ Wes Anderson fan
 
 ### Contact me!
